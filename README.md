@@ -1,2 +1,2 @@
-# The-machine-room-killer
-This database was created with the support of Class 2, Grade 2, Junior High School of Handan 23, Hebei province, China. It is only used for pranking teachers in information classes
+#机房杀手
+我不认为应该在这里放些东西来阻挡观众的好奇心，可是我放了。因为不放不行
